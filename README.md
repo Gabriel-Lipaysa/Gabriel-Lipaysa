@@ -6,3 +6,4 @@ Fun Facts
 - I've tried installing Arch Linux, btw
 - I like memes, so send memes
 - Bored? Send memes.
+- I like doing dumb stuff
